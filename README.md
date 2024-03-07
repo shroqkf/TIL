@@ -1,2 +1,2 @@
 # TIL
-Today Chanyoung Learned
+✨Today Chanyoung Learned
